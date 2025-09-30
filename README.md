@@ -31,4 +31,7 @@ When I’m not coding, you’ll find me:
 - Sewing & embroidering unique household items
 - Altering my own clothes and exploring new crafts!
 
-Ping my on Slack to chat all things Care Finding, crafts, and coffee! ✨
+---
+
+## 💬 Let's chat! 
+Ping me on Slack to chat all things Care Finding, crafts, and coffee! ✨
